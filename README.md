@@ -1,1 +1,1 @@
-# AfilateMarketing
+# AfilateMarketing | CPA
